@@ -1,1 +1,1 @@
-https://whysujalwhy.github.io/calculator.io/
+https://suj4lb.github.io/calculator.io/
